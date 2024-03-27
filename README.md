@@ -1,1 +1,1 @@
-#PAG 2 gabi p, guilherme a
+#PAG 2 gabriela paluch, guilherme albuquerque
